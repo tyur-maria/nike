@@ -1,1 +1,1 @@
-https://tyur-maria.github.io/homework/
+https://tyur-maria.github.io/nike/
